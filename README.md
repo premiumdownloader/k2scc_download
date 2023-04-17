@@ -18,6 +18,15 @@ Step 5:
 Download your files !
 => DONE !
 
+Tutorial:
+https://www.youtube.com/watch?v=JVjlFgp4Wzw
+
+Download RapidGator tutorial:
+https://www.youtube.com/watch?v=BhUeQxi3jco
+
+Tip download file from rapidgator/k2scc to google drive:
+
+https://www.youtube.com/watch?v=sfblFG4aHdQ
 ______________________
 
 You can save file to your google drive.
